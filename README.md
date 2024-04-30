@@ -1,9 +1,9 @@
 - 👋 Hi, I’m @ToxicPapi3
-- 👀 I’m interested in 
+- 👀 I’m interested in many things
 - 🌱 I’m currently learning maintnence
-- 💞️ I’m looking to collaborate on 
-- 📫 How to reach me 
-- 😄 Pronouns: idk male pronouns
+- 💞️ I’m looking to collaborate on not sure 
+- 📫 How to reach me email- ehernesto26@gmail.com
+- 😄 Pronouns: He/Him
 - ⚡ Fun fact: i can play trumpet
 
 <!---
